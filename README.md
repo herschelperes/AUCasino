@@ -1,1 +1,1 @@
-# AUCasino
+My name is Herschel Peres. I am an Android game developer with over five years of experience in the field. My primary goal is to create exciting and unique games for the Android platform. I have deep knowledge in programming, as well as skills in graphic design and animation. My work is my passion, and I am always ready to bring innovative ideas and technical expertise to every project I develop. I am extremely passionate about gaming and prioritize ensuring that every player gets the maximum enjoyment from my games.
